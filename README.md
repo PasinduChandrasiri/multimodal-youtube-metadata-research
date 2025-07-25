@@ -30,7 +30,9 @@ This is an ongoing research project focused on advancing methods for automatic m
 
 ## Contact
 
-For inquiries related to this research project, please contact [through LinkedIn](www.linkedin.com/in/pasinduchandrasiri).
+For inquiries related to this research project, please contact (Feel free to send message via LinkedIn);
+P.G.P.M. Chandrasiri - [LinkedIn](https://www.linkedin.com/in/pasinduchandrasiri).
+K.M.P.S. Kulathunga - [LinkedIn](https://www.linkedin.com/in/pramuda-kulathunga)
 
 ---
 
